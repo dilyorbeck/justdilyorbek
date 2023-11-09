@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @justdilyorbek
-- 📍 Based in Andijan
+- 📍 Based in Uzbekistan
 - 👀 I’m interested in web and mobile development...
 - 🌱  I love learning anything new...
 - 📫 How to reach me justsharofiddinov@gmail.com
